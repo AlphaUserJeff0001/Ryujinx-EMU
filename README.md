@@ -82,6 +82,7 @@ Now you can play games by double pressing on the game file or in the emulator Fi
 
 AND ITS ALL DONE
 
+The PC i will pick to run all games 60 fps is Steam Deck 500$ but its my opinion i dont want you to buy it i just recommend it
 
 
                           HAVE FUN PLAYING
